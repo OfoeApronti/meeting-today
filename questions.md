@@ -1,4 +1,4 @@
-I am a dedicated and amiable technology person
+I am a dedicated and highly skilled technology person who loves his craft.
 
 I joined Fidelity Asset Management right from university, 2007. I impressed my actuarial science lecturer, who was also the Manager for Fidelity Asset Management. 
 To do so, I used a weekend to flesh a basic pension reporting software, and he immediately run to convince Jim i was the missing piece in his team.
